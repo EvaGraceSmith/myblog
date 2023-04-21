@@ -1,6 +1,3 @@
-### Author
-
-Eva Grace Smith
 
 ### Intro:
 
